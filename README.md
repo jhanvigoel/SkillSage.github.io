@@ -55,5 +55,9 @@ If you have any questions, suggestions, or issues, feel free to reach out to us:
 
 - **Email**: raashimathur04@gmail.com
 - **LinkedIn**: (https://www.linkedin.com/in/raashi-mathur-917799293)
+- **Email**: ishitatpwk@gmail.com
+- **LinkedIn**: (https://www.linkedin.com/in/ishitasabharwal)
+- **Email**: jhanvif2420@gmail.com
+- **LinkedIn**: https://www.linkedin.com/in/jhanvi-goel-32214123a
 
 Thank you for being a part of Mentorship Hub and contributing to the growth of young entrepreneurs. Let's build a brighter future together! 🚀
