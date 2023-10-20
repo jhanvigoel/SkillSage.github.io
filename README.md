@@ -1,5 +1,5 @@
 # skillsage.github.io
-# SKILL SAGE: Mentoring strtups|Nurturing futures
+# SKILL SAGE: Mentoring startups|Nurturing futures
 
 Welcome to **Skill Sage**, your go-to platform for mentorship, guidance, and resources tailored for young, emerging entrepreneurs, especially students. Our mission is to empower the next generation of business leaders by connecting them with experienced mentors and providing valuable resources to foster innovation and growth.
 
